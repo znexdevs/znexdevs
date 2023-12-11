@@ -1,0 +1,2 @@
+- 👋 Hi, We’re Znex
+- 📫 How to reach us hello@znex.io
